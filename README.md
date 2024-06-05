@@ -1,4 +1,4 @@
-Olá! @seuapartamentonorj
+Olá! bem vindo ao site: seuapartamentonorj
 Conheça os melhores  lançamentos da cury construtora no Rj
   
 
