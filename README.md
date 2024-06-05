@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @seuapartamentonorj
-  Conheça os melhores  lançamentos da cury construtora no Rj
+Olá! @seuapartamentonorj
+Conheça os melhores  lançamentos da cury construtora no Rj
   
 
 
